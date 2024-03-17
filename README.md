@@ -1,1 +1,1 @@
-# Tariq-wAD
+# Tariq-WAD
